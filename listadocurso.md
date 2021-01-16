@@ -7,24 +7,24 @@ Prof. Jose Luis Manon
 Listado
 
 1. Diana
-2.Merylin
-3.Francisco
-4.Franklin 
+2. Merylin
+3. Francisco
+4. Franklin 
 5. Albert Dipre 
-6.Angel Luis Duran Montaño a.k.a. La Bestia
-7.gregorio estevez
-8.Laura F
-9.Carlos Gonzalez
+6. Angel Luis Duran Montaño a.k.a. La Bestia
+7. Gregorio Estevez
+8. Laura F
+9. Carlos Gonzalez
 10. Dilabel.
 11. Laura Javier
 12. Xamira Lapaix ;)
-13.Braulin Méndez
-14.Edwin Morillo
+13. Braulin Méndez
+14. Edwin Morillo
 15. Vanessa Peralta
-16.Ysabel Pomares
-17.RIVALDO RAMOS N.
-18.Jorge Santana
-19.Eduardo Segura
+16. Ysabel Pomares
+17. RIVALDO RAMOS N.
+18. Jorge Santana
+19. Eduardo Segura
 20. Montserrat Tejada
 21. Camila Tezanos
 22. Diana
